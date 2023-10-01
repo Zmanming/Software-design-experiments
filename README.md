@@ -1,0 +1,1 @@
+YZM is fucking stupid
