@@ -1,1 +1,1 @@
-YZM is fucking stupid
+
